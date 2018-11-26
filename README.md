@@ -5,4 +5,6 @@ I can also edit the readme file.
 
 Me too :)
 
+That's cool. 
+
 2nd edit
